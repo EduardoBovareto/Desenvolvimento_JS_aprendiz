@@ -27,4 +27,5 @@ Onde me encontrar:
 
 [![Instagram](https://img.shields.io/badge/Bovareto_eduard-E4405F?style=for-the-badge&logo=instagram&logoColor=white)](https://www.instagram.com/bovareto_eduard/)
 
+  Ou  nos links que estão no meu perfil, mas prefira chamar por esses acima, pois é onde mais estou!
 </div>
